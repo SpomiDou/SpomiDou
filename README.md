@@ -1,4 +1,4 @@
-<center>
+<div align="center">
   you can call me monika or the name of the skin im using at the moment<br>
   any pronouns (i prefer she/he)<br>
   spa/eng, english is not my first language so pls be patient!!<br>
@@ -19,4 +19,4 @@
   <br><br>
   
   <img src="https://media1.tenor.com/m/ilIc5dsB9ZUAAAAd/paul-mccartney-theboringnerve.gif" width="250">
-</center>
+</div>
