@@ -1,6 +1,6 @@
 <table align="center">
   <tr>
-    <td valign="center">
+    <td align="center" valign="center">
       you can call me monika or the name of the skin im using at the moment<br>
       any pronouns (i prefer she/he)<br>
       spa/eng, english is not my first language so pls be patient!! 17 y/o<br>
