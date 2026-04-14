@@ -16,7 +16,7 @@ same fandoms (the beatles, skins uk, chiikawa, ace attorney, death note, etc... 
 basic dni criteria yk (be nice, dont act weird, dont be problematic) over 25, under 15, viviziepop fans of her or her work, bnha fans, roleplayers <br>
 <br>
 <b>byi</b><br>
-maybe sometimes i could do suicide jokes or related, also silly sexual jokes if i'm close enough to you (but no if i feel uncomfortable with the age gap ofc, 2 years over or under)<br>
+maybe sometimes i could do suicide jokes or related, also silly sexual jokes if im close enough to you (but no if i feel uncomfortable with the age gap ofc, 2 years over or under)<br>
 <br>
 <b>discord</b><br>
 monikakas<br>
