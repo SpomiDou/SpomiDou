@@ -10,7 +10,7 @@ UTC -04:00<br>
 im usually afk... so if you see me sleeping is better w2i, c+h+k freely<br>
 <br>
 <b>int</b><br>
-same fandoms (the beatles, skins uk, chiikawa, ace attorney, etc... if you see me with a skin of smth that you like just talk to me ^_^ ), anyone nice<br>
+same fandoms (the beatles, skins uk, chiikawa, ace attorney, death note, etc... if you see me with a skin of smth that you like just talk to me ^_^ ), anyone nice<br>
 <br>
 <b>dni</b><br>
 basic dni criteria yk (be nice, dont act weird, dont be problematic) over 25, under 15, viviziepop fans of her or her work, bnha fans<br>
