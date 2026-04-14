@@ -1,7 +1,7 @@
 <div align="center">
-
+<br><br>
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ <br>
-<img src="https://files.catbox.moe/wz52g5.gif" width="30"><br>
+<img src="https://files.catbox.moe/wz52g5.gif" width="30"><br><br>
 
 you can call me monika or the name of the skin im using at the moment<br>
 any pronouns (i prefer she/he)<br>
