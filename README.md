@@ -1,8 +1,6 @@
 <div align="center">
-
-୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ <br>
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧<br>
 <img src="https://files.catbox.moe/wz52g5.gif" width="30"><br>
-
 you can call me monika or the name of the skin im using at the moment<br>
 any pronouns (i prefer she/he)<br>
 spa/eng, english is not my first language so pls be patient!!<br>
@@ -23,7 +21,5 @@ maybe sometimes i could do suicide jokes or related, also silly sexual jokes if 
 <b>discord</b><br>
 monikakas<br>
 <br>
-
 <img src="https://media1.tenor.com/m/ilIc5dsB9ZUAAAAd/paul-mccartney-theboringnerve.gif" width="250">
-
 </div>
