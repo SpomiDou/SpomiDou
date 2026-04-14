@@ -1,6 +1,6 @@
 <div align="center">
-<br><br><br><br><br><br>
-୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ <br><br>
+
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ <br>
 <img src="https://files.catbox.moe/wz52g5.gif" width="30"><br>
 
 you can call me monika or the name of the skin im using at the moment<br>
