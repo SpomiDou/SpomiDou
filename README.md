@@ -7,7 +7,7 @@ spa/eng, english is not my first language so pls be patient!!<br>
 17 y/o<br>
 UTC -04:00<br>
 <br>
-ALL MY SKINS ARE MADE BY ME, dont copy them ,insp is ok. Im usually afk... so if you see me sleeping is better w2i, c+h+k freely<br>
+ALL MY SKINS ARE MADE BY ME, dont copy them, insp is ok. Im usually afk... so if you see me sleeping is better w2i, c+h+k freely<br>
 <br>
 <b>int</b><br>
 same fandoms (the beatles, skins uk, chiikawa, ace attorney, death note, etc... if you see me with a skin of smth that you like just talk to me ^_^ ), anyone nice, also you can int w me whenever u want, if you see me, dont be shy and talk 2 me!! <br>
