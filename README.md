@@ -18,8 +18,7 @@ basic dni criteria yk (be nice, dont act weird, dont be problematic) over 25, un
 <b>byi</b><br>
 maybe sometimes i could do suicide jokes or related, also silly sexual jokes if im close enough to you (but no if i feel uncomfortable with the age gap ofc, 2 years over)<br>
 <br>
-<b>discord</b><br>
-monikakas<br>
+<b>
 <br>
 <img src="https://media1.tenor.com/m/ilIc5dsB9ZUAAAAd/paul-mccartney-theboringnerve.gif" width="250">
 </div>
